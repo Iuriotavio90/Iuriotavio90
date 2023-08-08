@@ -4,4 +4,4 @@
  Sagitário ♐
 
  
-![](https://giphy.com/gifs/one-piece-sanji-9aiveGIvkwfyE)
+![](https://media0.giphy.com/media/9aiveGIvkwfyE/200w.webp?cid=ecf05e47touwth1ggwgka42t8iqspva75ybf2bo5dn16inud&ep=v1_gifs_search&rid=200w.webp&ct=g)
