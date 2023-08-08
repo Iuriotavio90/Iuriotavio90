@@ -3,8 +3,7 @@
 04/12/2007 👶  
  Sagitário ♐
  
-![](https://giphy.com/gifs/one-piece-sanji-9aiveGIvkwfyE)
-
+![](https://tenor.com/pt-BR/view/turn-down-for-what-scream-squad-gif-5475089)
 
  
 <!--
