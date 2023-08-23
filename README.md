@@ -3,7 +3,7 @@
 04/12/2007 👶  
 
  Sagitário ♐   
-OnePiece é muito bom
+OnePiece é muito bom⛵
  
  ![](https://img.elo7.com.br/product/zoom/227A488/luminaria-led-3d-one-piece-luffy-anime-acrilico-abajur.jpg)
 
